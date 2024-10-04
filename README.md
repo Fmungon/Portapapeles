@@ -23,3 +23,10 @@
 
 #### Si no, tambien me gustaría trabajar montando redes, cableados, switchs, routers y cosas por el estilo.
 
+## Mis redes sociales
+
+#### Mi [Instagram](https://www.instagram.com/francisc_javier03/profilecard/?igsh=MWxhN3NpeXJiaXRjeA==).
+
+#### Mi [X (Twitter para los colegas)](https://x.com/munhosito).
+
+
